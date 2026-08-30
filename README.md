@@ -18,6 +18,7 @@
 
                                                     •─────⋅☾ ☽⋅─────•
 
+<img width="99" height="56" alt="Megatron sticker 1" src="https://github.com/user-attachments/assets/83725938-2d4d-4c2d-a317-73847b168830" />
 
 
                                                     •─────⋅☾ ☽⋅─────•
