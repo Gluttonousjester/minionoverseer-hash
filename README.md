@@ -1,6 +1,6 @@
   .    .    .    .   .   .   .    .   .   . 𝓜𝓪𝓽𝓬𝓱𝓲𝓷𝓰 𝔀𝓲𝓽𝓱 𝓞𝓹𝓽𝓲𝓶𝓾𝓼 (𝓖𝓵𝓾𝓽𝓽𝓸𝓷𝓸𝓾𝓼𝓳𝓮𝓼𝓽𝓮𝓻) .   .   .   .   .   .   .   .   .  .   .   .
 
-  <img width="200" height="200" alt="Matching sticker w outline" src="https://github.com/user-attachments/assets/cb3edf33-72a5-4a8e-b09f-0d502ce983a1" />
+  <img width="500" height="500" alt="Matching sticker w outline" src="https://github.com/user-attachments/assets/cb3edf33-72a5-4a8e-b09f-0d502ce983a1" />
 
                                                     
                                                     •─────⋅☾ ☽⋅─────•
